@@ -1,10 +1,7 @@
 - 👋 Hi, I’m @Afghan-hacker7
-- 👀 I’m interested in ...
+- 👀 I’m interested in Commands Making
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 💞️ I’m looking for a best friend to help each other
+- 📫 How to reach me ...?
 
-<!---
-Afghan-hacker7/Afghan-hacker7 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+Follow me in Facebook Also" https://www.facebook.com/Bad7afghan7hacker "
